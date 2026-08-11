@@ -1,1 +1,1 @@
-# Nazamagr.github.io
+# Nazam.github.io
